@@ -1,5 +1,3 @@
-Chapter 3: Building Your Products or Services
-=============================================
 
 Building products or services that effectively meet customer needs and preferences is critical for building successful businesses. In this chapter, we will explore strategies for developing products or services that solve problems, conducting market research, and testing and iterating on products or services.
 

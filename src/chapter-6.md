@@ -1,5 +1,3 @@
-Chapter 5: Managing Finances
-============================
 
 Managing finances is a critical component of building a successful business. In this chapter, we will explore strategies for managing finances, including financial planning and forecasting, budgeting and managing cash flow, and raising capital.
 

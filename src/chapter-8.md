@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Success
-=============================
 
 Building a successful business is just the first step in an entrepreneurial journey. Sustaining success requires ongoing effort, focus, and commitment. In this chapter, we will explore strategies for maintaining motivation and momentum, managing risk and uncertainty, and balancing personal and professional life.
 

@@ -1,5 +1,3 @@
-Chapter 6: Scaling Your Business
-================================
 
 Scaling your business is an exciting and challenging process that requires careful planning and execution. As businesses grow, entrepreneurs must build a strong team, develop effective processes and systems, and expand into new markets to achieve long-term success.
 
